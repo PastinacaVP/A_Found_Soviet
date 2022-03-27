@@ -30,3 +30,17 @@ https://www.youtube.com/watch?v=oTGZMB-bet0
 1989-07-07
 История московского международного кинофестиваля. 1961-1991. Валерий Генде-Роте
 https://www.youtube.com/watch?v=05DwUKiEsNs
+Trailer of Ladri di saponette (Dir. Maurizio Nichetti; Mustang Entertainment DVD)
+
+1989-08-23
+Balti tee 1989
+https://www.youtube.com/watch?v=J42xVUIUYd4
+
+1989-09-07
+НЛО__или_Что_это_было__Время__Эфир_11_10_1989Советское_телевиден
+https://yandex.ru/video/preview/11964771309760093893
+
+1989-12-02
+G04128901
+https://www.youtube.com/watch?v=71iIizYPYqA
+
