@@ -5,11 +5,11 @@
 
 Intro
 俄语语言国情（6）(1990.12)
-Russian Language National Conditions VOL.06 (19902.12)
+Russian Language National Conditions VOL.06 (1990.12)
 
 1989-01-12
 俄语语言国情（6）(1990.12)
-Russian Language National Conditions VOL.06 (19902.12)
+Russian Language National Conditions VOL.06 (1990.12)
 
 1989-01-22
 https://www.gazeta.ru/science/2019/01/23_a_12139363.shtml
