@@ -338,3 +338,207 @@ Flag_of_Artsakh.svg.png, Wikipedia
 1280px-Flag_of_the_Chuvash_ASSR.svg.png, Wikipedia
 1280px-Flag_of_Karakalpak_ASSR.svg.png, Wikipedia
 
+1994-03-07
+Adoptarea Constituției Republicii Moldova, 29 iulie 1994
+https://www.youtube.com/watch?v=Agaz_iYrJj4
+Ion Iliescu - lansare de carte "Revolutie si reforma" (1994)
+https://www.youtube.com/watch?v=93mEtFzQbuM
+
+1994-05-05
+Buran The Russian Space Shuttle
+https://www.youtube.com/watch?v=Q6WHjQ3Y3Uo
+
+1994-06
+Taliban Captures Mazar-e-Sharif, Massoud's Forces Repel Attack
+https://www.youtube.com/watch?v=xFzra1A1SXA
+
+1994-07-08
+TAJIKISTAN: RUSSIAN TROOPS CLASH WITH REBELS
+https://www.youtube.com/watch?v=2oXiggtv9eQ
+
+1994-09
+Russia - John Major visit
+https://www.youtube.com/watch?v=HUkRBDufgKo
+
+1994-12-31
+Mesager: Unirea Basarabiei cu România, marcată şi la Parlament
+https://www.youtube.com/watch?v=tCLRbve2USk
+Moldova reunification rally
+https://www.youtube.com/watch?v=0CN10H709_I
+
+1995-01
+Шествие 4 февраля 1990 в Москве и другие митинги 1991
+https://www.youtube.com/watch?v=b5-fOxwn-hg
+Federation Council - Anthem Russia 1994 (Start) - 11.01.1994 (Full-Version) Rare! With Boris Yeltsin
+https://www.youtube.com/watch?v=0TVMFw6NuLE
+
+1995-02
+Субъекты Российской Федерации на Карте
+https://www.youtube.com/watch?v=yX1DsZo7vYA
+1280px-Flag_of_the_Buryat_ASSR.svg.png, Wikipedia
+Flag_of_Dagestan_SSR.png, Wikipedia
+1280px-Flag_of_Kalmyk_ASSR.svg.png, Wikipedia
+1280px-Flag_of_Karelian_ASSR.svg.png, Wikipedia
+1280px-Flag_of_the_Komi_ASSR.svg.png, Wikipedia
+1280px-Flag_of_Mari_ASSR.svg.png, Wikipedia
+1280px-Flag_of_Mordovian_ASSR.svg.png, Wikipedia
+1280px-Flag_of_Tuvan_ASSR_(1978-1992).svg.png, Wikipedia
+1280px-Flag_of_Udmurt_ASSR.svg.png, Wikipedia
+1280px-Flag_of_the_Yakut_ASSR.svg.png, Wikipedia
+
+1995-03
+Пожар в Бакинском метро (ТВ, 1995)
+https://www.youtube.com/watch?v=21fP6CwZO4s
+Теракт во Владикавказе (1999 год)
+https://www.youtube.com/watch?v=CsCqY-KjXjQ
+Теракт в Кизляре. Захват больницы. Первомайское. Радуев, Исрапилов. 1996 год | Криминальная история
+https://www.youtube.com/watch?v=0rqHNJBJgJA
+
+1995-04-01
+Vintage VHS Introduction to the Internet VHS tape (1994) - nickkie.com.mp4
+https://archive.org/details/vintage-vhs-introduction-to-the-internet-vhs-tape-1994-nickkie.com
+1280px-Flag_of_the_Soviet_Union (1980-).jpg, Wikipedia
+1280px-Flag_of_Ukraine_(1992–2006).svg.png, Wikipedia
+Flag_of_Georgia_(1990–2004).svg.png, Wikipedia
+Flag_of_the_Republic_of_Abkhazia (1992-).svg.png, Wikipedia
+1280px-Flag_of_Estonia.svg.png, Wikipedia
+1280px-Flag_of_Latvia.svg.png, Wikipedia
+1280px-Flag_of_Lithuania_(1988–2004).svg.png, Wikipedia
+Flag of Moldavia.svg, Wikipedia
+Russian_language_flag.svg.png, Wikipedia
+
+1995-05-06
+FRANCE: LYON: INTERPOL INTERNATIONAL HEAD QUARTERS: SPECIAL REPORT
+https://www.youtube.com/watch?v=n8uAJ7Xub9o
+https://9gag.com/gag/aAG63yd
+
+1995-05-28
+Землетрясение в Нефтегорске
+https://www.youtube.com/watch?v=mGAvmwYkl20
+
+1995-08-15
+9 мая 1995г. Москва. Поклонная гора. Военный парад.
+https://www.youtube.com/watch?v=CPJwtuk1iIc
+
+1995-10-19
+My British army advert 1995 Arizona(Grand Canyon) USA
+https://www.youtube.com/watch?v=uh_M0G5ykvA
+https://callofduty.fandom.com/wiki/John_Price
+https://callofduty.fandom.com/wiki/MacMillan
+
+1995-12-14
+https://en.wikipedia.org/wiki/File:Balkan_Peace_Agreement_Signing_(1995)_Clinton_Library.webm
+This material is public domain, as it is a work prepared by an officer or employee of the U.S. Government as part of that person's official duties. Any usage must receive the credit "Courtesy; William J. Clinton Presidential Library," and no exclusive rights or permissions are granted for usage.
+1280px-Flag_of_the_Soviet_Union (1980-).jpg, Wikipedia
+Flag_of_Bosnia_and_Herzegovina_(1992–1998).svg.png, Wikipedia
+
+1995-12-17
+Russia reaches next step for WTO inclusion
+https://www.youtube.com/watch?v=j74VZBJbA9w
+
+1996-01-08
+Call of Duty: Modern Warfare Remastered - Chernobyl Mission (Veteran Mode) [PC, 4K, 60fps]
+https://www.youtube.com/watch?v=FnF16l4XZwc
+
+1996-03-01
+Thailand - First Asia-Europe Economic Summit
+https://www.youtube.com/watch?v=uLhA_8AbOYI
+
+1996-04-26
+Call of Duty: Modern Warfare Remastered - Chernobyl Mission (Veteran Mode) [PC, 4K, 60fps]
+https://www.youtube.com/watch?v=FnF16l4XZwc
+
+1996-05-03
+RUSSIA: RUSSIAN ARMY DEVASTATING CHECHNYA CAPITAL GROZNY
+https://www.youtube.com/watch?v=_Tf4p2zIg_4
+
+1996-07-08
+Хроника войны на Северном Кавказе. 4-ч 1996 г. ОРТ, НТВ
+https://www.youtube.com/watch?v=7lsVDJiOgc8
+
+1996-08-09
+Инаугурация Ельцина 1996 год.INAGURAZIA ELZINA.mov
+https://www.youtube.com/watch?v=A8EuWpSN-0s
+
+1996-09-22
+President Bill Clinton Signing the Comprehensive Nuclear Test Ban Treaty (CTBT) on 9/24/1996
+https://www.youtube.com/watch?v=JW4JQt9APHU
+
+1996-10-22
+USA - Clinton comments on NATO expansion
+https://www.youtube.com/watch?v=-qPnl5finDw
+Russia - Gorbachev comments on NATO expansion
+https://www.youtube.com/watch?v=3wB9uL2lKaw
+
+1997-02-01
+Флаг и гимн ОДКБ Flag and anthem of CSTO
+https://www.youtube.com/watch?v=gEg96mlmqLA
+Flag_of_the_Republic_of_Abkhazia (1992-).svg.png, Wikipedia
+Flag_of_Georgia_(1990–2004).svg.png, Wikipedia
+
+1997-04-29
+OPCW Challenge Inspection Exercise 2007
+https://www.youtube.com/watch?v=KPTsGMyxzcc
+
+1997-07-01
+🇭🇰🇨🇳 香港回歸交接儀式 Hong Kong Handover Ceremony 1997 [HQ]
+Fragment of Tenamonya Konekushon (Dir. Masashi Yamamoto; IMAGICA DVD)
+https://www.youtube.com/watch?v=C_aPZGS3CH4
+
+1997-07-03
+Зюганов о Ельцине
+https://www.youtube.com/watch?v=otqpt0zCuqw
+
+1997-08-08
+Federation Council - Anthem Russia 1998 (Short) - 23.12.1998 - [Remade Version]
+https://www.youtube.com/watch?v=NTyAZOS3EoE
+Soviet Anthem Instrumental (OFFICIAL VERSION)
+https://www.youtube.com/watch?v=k3IQC3HCg-w
+State Emblem of the Soviet Union (New Union).svg, Alternative History
+Альтернативная История (1997-).png, Alternative History(ru)
+
+1997-10-09
+Charlie Rose 1998-06-11
+https://archive.org/details/Charlie-Rose-1998-06-11
+https://www.basicbooks.com/titles/zbigniew-brzezinski/the-grand-chessboard/9780465094356/
+
+1997-12-03
+Mine Ban Treaty Video
+https://www.youtube.com/watch?v=eaYp4vXMUWM
+
+1998-02-01
+УФА 90 х
+https://www.youtube.com/watch?v=WKoRqI719AE
+Области_Татарской_и_Башкирской_АССР_1953.png, Wikipedia
+
+1998-03-03
+Circassian_Independence_Majlis.png, Wikipedia
+Донского_Войска_Область_1900.svg, Wikipedia
+1280px-Flag_of_Don_Cossacks.svg.png, Wikipedia
+
+1998-04-26
+UKRAINE: CHERNOBYL: RE-OPENING
+https://www.youtube.com/watch?v=bWbXnry9trU
+
+1998-06-19
+Flags of all 25 EU members raised together for first time
+https://www.youtube.com/watch?v=I88qRwVirTo
+1280px-Flag_of_Estonia.svg.png, Wikipedia
+1280px-Flag_of_Lithuania_(1988–2004).svg.png, Wikipedia
+1280px-Flag_of_Latvia.svg.png, Wikipedia
+1280px-Flag_of_Ukraine_(1992–2006).svg.png, Wikipedia
+Flag of Moldavia.svg, Wikipedia
+
+1998-07-29
+Тайна гибели главы МВД СССР Бориса Пуго и его жены
+https://www.youtube.com/watch?v=JYpkqKZ7e6w
+"Пресс-клуб". ГКЧП... Версия... После амнистии...
+https://www.youtube.com/watch?v=FiwcgEec0fo
+
+1998-08-23
+VOA连线(歌篮)：日俄解决北方四岛主权纠纷触动中国疑虑
+https://www.voachinese.com/a/voaconnect-japan-20190123/4755318.html
+
+1998-11-20
+Взлет ракеты с космодрома Байконур.
+https://www.youtube.com/watch?v=3_QaojfVceA
