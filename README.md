@@ -482,8 +482,8 @@ https://www.youtube.com/watch?v=KPTsGMyxzcc
 
 1997-07-01
 🇭🇰🇨🇳 香港回歸交接儀式 Hong Kong Handover Ceremony 1997 [HQ]
-Fragment of Tenamonya Konekushon (Dir. Masashi Yamamoto; IMAGICA DVD)
 https://www.youtube.com/watch?v=C_aPZGS3CH4
+Fragment of Tenamonya Konekushon (Dir. Masashi Yamamoto; IMAGICA DVD)
 
 1997-07-03
 Зюганов о Ельцине
