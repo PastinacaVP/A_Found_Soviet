@@ -542,3 +542,6 @@ https://www.voachinese.com/a/voaconnect-japan-20190123/4755318.html
 1998-11-20
 Взлет ракеты с космодрома Байконур.
 https://www.youtube.com/watch?v=3_QaojfVceA
+
+Outro
+pvp2.png, QR Code
