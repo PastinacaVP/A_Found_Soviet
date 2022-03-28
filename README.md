@@ -1,7 +1,17 @@
 # A.Found.Soviet
 
-以下所使用的素材资料均不代表创作方的观点
-(The materials used below do not represent the views of the creators)
+*旁白资料参考:
+*(Material Quotes of the Narration Part)
+
+Soviet Union (New Union)
+https://althistory.fandom.com/wiki/Soviet_Union_(New_Union)
+虚拟历史 | 如果苏联不死……（江湖遠人译）
+https://mp.weixin.qq.com/s/YGDNzGZzLpKku3F2L8mNfg
+维基百科、中国部分省市地名志
+（Wikipedia, Gazetteer of Relevant Provinces and Cities in China）
+
+*以下所使用的素材资料均不代表创作方的观点:
+*(The materials used below do not represent the views of the creators)
 
 Intro
 俄语语言国情（6）(1990.12)
