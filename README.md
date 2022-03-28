@@ -197,3 +197,39 @@ https://www.youtube.com/watch?v=v1YXys2uZJE
 21 декабря 1991 года
 https://www.youtube.com/watch?v=jbWlryg6k7k
 
+1992-01-14
+HD Final Soviet October Revolution Parade, 1990 Парад 7 Ноября
+https://www.youtube.com/watch?v=PxZux1KLhAQ
+
+1992-01-16
+Специальный репортаж Сергея Кочиева о референдуме 1992 года. 19.01.2018.
+https://www.youtube.com/watch?v=hcY4AT8KuqM
+ОККУПАЦИЯ. АВГУСТ | Учения "Кавказ-2008":как Россия вторглась в Грузию. Оккупация Абхазии и Ю.Осетии
+https://www.youtube.com/watch?v=Mo-bhB8a6Zo
+
+1992-02-05
+Затопление станции МИР
+https://www.youtube.com/watch?v=Sp9YBTrIitU
+Soyuzcosmos, Image from Soviet Union (New Union)
+https://althistory.fandom.com/wiki/Soviet_Union_(New_Union)
+
+1992-03-02
+Хроника Необъявленной Войны (Приднестровье 1992) / Transnistria 1992 (С. Фатеев) [1993, Война, TVRip]
+https://rutracker.org/forum/viewtopic.php?t=278741
+Народные волнения в Гагаузии 1990г
+https://www.youtube.com/watch?v=SqDllbFSDpI
+
+1992-05-14
+Отставка Горбачева. Заявление 25.12.1991. Полная версия
+https://www.youtube.com/watch?v=q0VNoAIts6M
+https://www.litres.ru/raznoe-4340152/konstituciya-sssr-1936/
+
+1992-05-15
+Первый Военный Парад ВС Республики Армения 28.05.1993г. (часть первая)
+https://www.youtube.com/watch?v=-UKfn9KvTW4
+Emblem_of_the_Collective_Security_Treaty_Organization.svg.png, Wikipedia
+
+1992-06-10
+Товарищеский матч 1992. СНГ (СССР) - Англия
+https://rutracker.org/forum/viewtopic.php?t=2834400
+
